@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning EDT through MTF, Master in Educational Leadership, Gamification, e-commerce
 - 💞️ I’m looking to collaborate on improving educational outcomes for low socio-economic communities
 - 📫 How to reach me-SeekMe out on LinkedIn.
-- 😄 Pronouns: Juste dp
+- 😄 Pronouns: Just dp
 - ⚡ Fun fact: "Kia whakatōmuri te haere whakamua" is "Walking backwards into the future, with eyes on the past." 
 - 😄 Native Kiwi from Aotearoa, New Zealand
 <!---
